@@ -66,7 +66,7 @@ Windows客户端： [点击下载](https://wws.lanzous.com/iPbOodzykuh)
 >
 > （1）、关于公众号：是叶十三
 >
-> ![img](https://imgconvert.csdnimg.cn/aHR0cHM6Ly91cGxvYWRlci5zaGltby5pbS9mL1F2ejNlbDg2eDNDRm45Q3gucG5nIXRodW1ibmFpbA?x-oss-process=image/format,png)
+> ![img](https://raw.githubusercontent.com/yerenping/images/master/img/%E5%85%AC%E4%BC%97%E5%8F%B72.png)
 >
 > （2）、在号内回复：美区即可获取
 
