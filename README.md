@@ -62,11 +62,11 @@ Windows客户端： [点击下载](https://wws.lanzous.com/iPbOodzykuh)
 
 > **关于Apple苹果用户**
 >
-> -------------------获取美区Apple ID--------------------------
+> -------获取美区Apple ID------------
 >
 > （1）、关于公众号：是叶十三
 >
-> ![img](https://raw.githubusercontent.com/yerenping/images/master/img/%E5%85%AC%E4%BC%97%E5%8F%B72.png)
+> ![img](https://img-blog.csdnimg.cn/20200714073455896.png?x-oss-process=image/watermark,type_ZmFuZ3poZW5naGVpdGk,shadow_10,text_aHR0cHM6Ly9ibG9nLmNzZG4ubmV0L3dlaXhpbl80NDQyMDE0Mw==,size_16,color_FFFFFF,t_70)
 >
 > （2）、在号内回复：美区即可获取
 
