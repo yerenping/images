@@ -10,12 +10,19 @@
 >
 > （4）、网站内有专属客户，有问题像网站提交，解决相关问题，支持提交工单！
 
+## 十三重金购买美区ID分享
 
-## 美区ID
+** 
 
-**账号【x-amalthea@aneeo.cc】密码【Aneeo.com-563898】
+账号【x-amalthea@aneeo.cc】密码【Aneeo.com-563898】
 
 账号被锁网站有自助解锁方法，禁止登陆iCloud！禁止登陆iCloud！使用后请退出账号，不影响已下载App使用~
+
+分享不易，如有帮助记得打赏，你的支持是我分享的最大动力
+![img](https://imgconvert.csdnimg.cn/aHR0cHM6Ly91cGxvYWRlci5zaGltby5pbS9mL3QwVkdKMWlrcHhDMDR0TmsuanBnIXRodW1ibmFpbA?x-oss-process=image/format,png)
+118
+
+
 
 **
 
