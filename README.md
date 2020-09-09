@@ -29,7 +29,11 @@
 账号⑥：zxbtb1@zxbtb.ca	密码：Zxbtb123456
 账号⑦：l_28584174@163.com	密码：MgdnyYVPz0AogMLS
 账号⑧：ie8116b6@icloud.com	密码：Aa112211
-**永久更新共享账号地址[单击此处跳转]https://n250.cn/)**
+
+
+
+**[永久共享账号地址](https://n250.cn/)**
+
 
 账号被锁网站有自助解锁方法，禁止登陆iCloud！禁止登陆iCloud！使用后请退出账号，不影响已下载App使用~
 
